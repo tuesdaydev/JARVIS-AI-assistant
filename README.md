@@ -1,10 +1,10 @@
  TUESDAY DEVELOPERS @2022
 
-## follow us on instagram  https://www.instagram.com/tuesdaydevelopers/
+follow us on instagram  https://www.instagram.com/tuesdaydevelopers/
 
-## github https://github.com/tuesdaydev
+github https://github.com/tuesdaydev
 
-## follow me  https://www.instagram.com/w_h_i_te._.d_e_vi_l/
+follow me  https://www.instagram.com/w_h_i_te._.d_e_vi_l/
 
 
 ## Introduction 👨‍💻
