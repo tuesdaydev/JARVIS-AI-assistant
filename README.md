@@ -1,4 +1,4 @@
-##TUESDAY DEVELOPERS @2022
+TUESDAY DEVELOPERS @2022
 
 ## follow us on instagram  https://www.instagram.com/tuesdaydevelopers/
 
